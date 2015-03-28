@@ -2,7 +2,7 @@
 layout: post
 title: Tolerans
 ---
-Att vara tolerant betyder för mig att acceptera att andra människor är annorlunda än sig själv.
+Att vara tolerant betyder för mig att acceptera att andra människor är annorlunda än sig själv.<br/>
 Det kan röra sig om IQ, hudfärg, etnicitet, ålder, åsikter, kön, vikt, längd. Det spelar ingen roll. 
 Vi är alla olika, och tolerans är att acceptera detta.
 Att sitta och hålla med andra med samma åsikter som en själv och dunka varandra i ryggen och tycka man är präktiga är INTE tolerans.
