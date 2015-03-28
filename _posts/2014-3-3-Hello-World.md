@@ -46,6 +46,16 @@ Jag har inte många bergfasta åsikter. Och jag omvärderar en åsikt om jag få
 <br/>
 Hade alla varit lite mer toleranta, så tror jag att världen hade varit en mycket bättre plats.<br/>
 <br/>
+Sedan finns det tyvärr många som tror att man är för SD bara för att man har samma åsikt som dom i någon fråga. 
+Eller när man ifrågasätter rent skitsnack om SD (eller andra saker).
+Jag ifrågasätter visheten i att sprida vidare allt skit man hittar om något man inte tycker om, speciellt om det visar sig vara osanning.
+
+För vad händer när folk upptäcker att det är en massa lögner man har spridit? Dom börjar ifrågasätta även det som har varit sanning. 
+Till sist tror dom att alla negativa saker är propaganda och lögner. Och det är inte bra.
+
+Jag tycker det är viktigt att tänka själv och inte blint lita på saker som står i Aftonbladet/Expressen/InteRasistMen/Exponerat osv.
+
+Och det är viktigt att ifrågasätta. Om man inte är nyfiken och utmanar sina egna och andras åsikter riskerar man att stagnera i tänkandet.
 Har **DU** tolerans?<br/>
 <br/>
 [Lite mer om tolerans](http://slatestarcodex.com/2014/09/30/i-can-tolerate-anything-except-the-outgroup/  "Lite mer om tolerans")
