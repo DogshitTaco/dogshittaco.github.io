@@ -24,7 +24,7 @@ Men det är inte säkert att jag kommer hålla med dig ändå när jag förstår
 Har **DU** tolerans?
 
 Lite mer på ämnet:
-[http://slatestarcodex.com/2014/09/30/i-can-tolerate-anything-except-the-outgroup/](http://slatestarcodex.com/2014/09/30/i-can-tolerate-anything-except-the-outgroup/ "Lite mer om tolerans")
+[Lite mer om tolerans](http://slatestarcodex.com/2014/09/30/i-can-tolerate-anything-except-the-outgroup/  "Lite mer om tolerans")
 
 ![_config.yml]({{ site.baseurl }}/images/config.png)
 
