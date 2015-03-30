@@ -3,13 +3,13 @@
 #
 
 # Name of your site (displayed in the header)
-name: Alexander Teske
+name: Verkligheten
 
 # Short bio or description (displayed in the header)
-description: Pragmatisk, nyfiken logiker 
+description: sedd av en pragmatisk, nyfiken logiker 
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
-avatar: http://teske.github.io/images/Emc2.png
+avatar: http://dogshittaco.github.io/images/Emc2.png
 
 #
 # Flags below are optional
@@ -21,7 +21,7 @@ footer-links:
   email:
   facebook:
   flickr:
-  github: teske/teske
+  github: dogshittaco/dogshittaco
   instagram:
   linkedin:
   pinterest:
@@ -39,7 +39,7 @@ google_analytics:
 
 # Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
 # Used for Sitemap.xml and your RSS feed
-url: http://teske.github.io
+url: http://dogshittaco.github.io
 
 # If you're hosting your site at a Project repository on GitHub pages
 # (http://yourusername.github.io/repository-name)
