@@ -79,4 +79,10 @@ Det blir riktigt tråkigt när nästa emotionella person kommer och tar den för
 Det blir en <b>mycket</b> trevligare diskussion om du i stället för att hitta på en massa saker frågar vad jag egentligen menar, och hur jag har kommit fram till slutsatserna.<br/>
 <br/>
 <br/>
-Nu hoppas jag att folk har lite mer
+Nu hoppas jag att folk har lite mer förståelse. <br/>
+Jag tror <b>inte</b> att jag är bäst eller perfekt. <br/>
+Jag är förmodligen mer medveten om mina fel och brister än dom flesta är om sina.<br/>
+Men jag är också fullt medveten om mina styrkor.<br/>
+Och jag skäms inte för att lyfta fram varesig mina styrkor eller mina svagheter.<br/>
+Men att lyfta fram sina styrkor ses som osvenskt, buffligt och narcissistiskt. Då bryter man ju mot [Jantelagen](http://sv.wikipedia.org/wiki/Jantelagen).<br/>
+Tycker man att det är en dålig sak, så är man förmodligen emot det multikulturella. Och ska kanske rösta på SD. :P 
