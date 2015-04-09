@@ -40,7 +40,7 @@ Om du röstar på SD är du en rasist.<br/>
 </ul>
 <br/>
 <br/>
-Det första påståendet är helt enkelt inte sant. Man _kan_ vara en rasist och lägga en röst på SD, men man blir inte automatiskt förvandlad till en rasist.<br/>
+Det första påståendet är helt enkelt inte sant. Man _kan_ vara en rasist och lägga en röst på SD, men man blir inte magiskt förvandlad till en rasist av att göra det.<br/>
 En lustig sak är att personer som har använt detta argument har varit på mig för att jag röstat blankt.<br/>
 När jag har förklarat att jag inte vill lägga min röst på ett parti som jag inte till fullo stöder, så säger dom att man ju kan rösta på ett parti som man bara håller delvis med. För politik är att kompromissa.<br/>
 Tyvärr är dessa personer väldigt inkonsekventa, för om jag då säger att jag inte håller med om deras flyktingpolitik men ska lägga min röst på SD nästa val, så blir det liv i luckan.<br/>
