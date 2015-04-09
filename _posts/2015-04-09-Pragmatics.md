@@ -68,7 +68,7 @@ Jag _vet_ vad andra tycker om mig, för jag har extremt mycket självkännedom o
 Att jag inte bryr mig om vad andra tycker om mig, är en helt annan sak. Och det har ingenting med empati eller brist därav att göra.<br/>
 Jag är den jag är, och tycker att det är att bedra att spela något annat.<br/>
 Kan inte folk acceptera mig för den jag är (med vårtor och allt), så är det så.<br />
-Det är inget jag ligger sömlös över. Men att alltid behöva spela en annan person än den jag är, det hade blivit extremt påfrestande. Och vem vill leva så? Att alltid låtsas vara någonting man inte är?<br />
+Det är inget jag ligger sömnlös över. Men att alltid behöva spela en annan person än den jag är, det hade blivit extremt påfrestande. Och vem vill leva så? Att alltid låtsas vara någonting man inte är?<br />
 <br />
 <br/>
 Jag brukar skämtsamt benämna mig själv som lila. Jag har extremt mycket rött och blått, och knappt något gult eller grönt i min naturliga personlighet. Jag _kan_ vara både grön och gul om jag lägger den sidan till.<br/>
@@ -86,12 +86,12 @@ Defensiv, petig och känslokall<br/>
 Läs gärna lite om personlighetstester som [DISC](http://www.ensize.se/produkter/pussel-disc)<br/>
 <br/>
 Med detta sagt, så förstår jag att en del gula eller gröna personer uppfattar mig som narcissistisk och empatilös. <br/>
-Det ligger i deras personligheter att se mig så. Speciellt eftersom jag har väldigt mycket av både blått och rött.<br/>
+Det ligger i deras personligheter att se min personlighet så. Speciellt eftersom jag har väldigt mycket av både blått och rött.<br/>
 Jag har dessutom en benägenhet att vara alltför rak när jag kommunicerar (funkar bra med andra röda eller blå personer). <br/>
 När jag delger mina analyser eller åsikter om olika ämnen har jag ibland för bråttom.<br/>
 Jag tänker inte på att alla inte har samma logiska slutledningsförmåga eller rationella tänkande som jag själv har, och kan behöva mer förklaringar för att kunna förstå hela bilden.<br/>
 <br/>
-En sak som jag ofta råkar ut för, är att emotionella personer läser in en massa saker mellan raderna. <br/>
+En sak som jag ofta råkar ut för, är att emotionella personer läser in en massa saker mellan raderna på det jag skriver. <br/>
 Jag har sagt det innan, men det kan förmodligen aldrig sägas tillräckligt många gånger:<br/>
 _Det enda du hittar mellan raderna på det jag skriver, är <b>dina</b> fördomar och förutfattade meningar om <b>mig</b>._<br/>
 Det blir riktigt tråkigt när nästa emotionella person kommer och tar den första personens fördomar om mig som något som _jag_ har sagt och står för.<br/>
