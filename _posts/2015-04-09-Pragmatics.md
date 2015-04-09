@@ -23,7 +23,7 @@ Man brukar säga att personer som jag är [rationella](http://g3.spraakdata.gu.s
 För mig är matematik naturens språk.<br />
 Allt som existerar kan beskrivas genom matematik<br/>
 E = mc² är ett relativt bra exempel på detta.<br/>
-Resultatet av en matetatisk formel blir den samma vem som än löser den (förutsatt att man räknar rätt).<br/>
+Resultatet av en matetatisk formel blir det samma vem som än löser den (förutsatt att man räknar rätt).<br/>
 <br />
 <br/>
 <br/>
