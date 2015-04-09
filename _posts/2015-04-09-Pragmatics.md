@@ -40,7 +40,7 @@ Om du röstar på SD är du en rasist.<br/>
 </ul>
 <br/>
 <br/>
-Det första påståendet är helt enkelt inte sant. Man _kan_ vara en rasist och lägga en röst på SD, men man blir inte magiskt förvandlad till en rasist av att göra det.<br/>
+Det första påståendet är helt enkelt inte sant. Man _kan_ vara en rasist och lägga en röst på SD, men man blir inte magisktförvandlad till en rasist av att göra det. Dessutom kan man ju vara rasist och lägga sin röst på V, FI eller vilket annat parti som helst.<br/>
 En lustig sak är att personer som har använt detta argument har varit på mig för att jag röstat blankt.<br/>
 När jag har förklarat att jag inte vill lägga min röst på ett parti som jag inte till fullo stöder, så säger dom att man ju kan rösta på ett parti som man bara håller delvis med. För politik är att kompromissa.<br/>
 Tyvärr är dessa personer väldigt inkonsekventa, för om jag då säger att jag inte håller med om deras flyktingpolitik men ska lägga min röst på SD nästa val, så blir det liv i luckan.<br/>
@@ -49,19 +49,19 @@ Andra påståendet är så befängt att jag inte ens bryr mig om att kommentera 
 <br/>
 <br/>
 När det kommer till min självkännedom, så analyserar jag mig själv jämt och ständigt.<br/>
-Jag _vet_ vad andra tycker om mig, för jag har extremt mycket självkännedom och väldigt mycket empati(Empati betecknar förmågan att uppleva och förstå andra personers känslor) att jag är totalt medveten om detta.<br/>
+Jag _vet_ vad andra tycker om mig, för jag har extremt mycket självkännedom och väldigt mycket empati(Empati betecknar förmågan att uppleva och förstå andra personers känslor) så jag är totalt medveten om detta.<br/>
 Att jag inte bryr mig om vad andra tycker om mig, är en helt annan sak.(det är ju emotionellt! ;) ) <br/>
 <br />
 Jag brukar skämtsamt benämna mig själv som lila. Jag har extremt mycket rött och blått, och knappt något gult eller grönt i min naturliga personlighet. Jag _kan_ vara både grön och gul om jag lägger den sidan till.<br/>
 <br/>
 <u>En röd person har oftast dessa egenskaper:</u><br/>
-Är målfokuserad, handlingskraftig, initiativrik och fattar gärna snabba beslut på egen hand. Rak och direkt i sin kommunikation.
-Många som inte själv är röda uppfattar mig bland annat som:<br/>
+Är målfokuserad, handlingskraftig, initiativrik och fattar gärna snabba beslut på egen hand. Rak och direkt i sin kommunikation.<br/>
+<u>Många som inte själv är röda uppfattar mig bland annat som:</u><br/>
 Alltför snabb, befallande, egoistisk, maktlysten och krävande<br/>
 <br/>
 <u>En blå person har oftast dessa egenskaper:</u><br/>
 Är systematisk, metodisk och logisk. Är noggrann med regler. Fattar sina beslut och ger svar som bygger på fakta och inte på känslomässiga grunder. Noga med detaljer, många specialister är blå.<br/>
-Många som inte själv är blå uppfattar mig bland annat som:<br/>
+<u>Många som inte själv är blå uppfattar mig bland annat som:</u><br/>
 Defensiv, petig och känslokall<br/>
 <br/>
 Läs gärna lite om personlighetstester som [DISC](http://www.ensize.se/produkter/pussel-disc)<br/>
@@ -76,3 +76,7 @@ En sak som jag ofta råkar ut för, är att emotionella personer läser in en ma
 Jag har sagt det innan, men det kan förmodligen aldrig sägas tillräckligt många gånger:<br/>
 _Det enda du hittar mellan raderna på det jag skriver, är <b>dina</b> fördomar och förutfattade meningar om <b>mig</b>._<br/>
 Det blir riktigt tråkigt när nästa emotionella person kommer och tar den första personens fördomar om mig som något som _jag_ har sagt och står för.<br/>
+Det blir en <b>mycket</b> trevligare diskussion om du i stället för att hitta på en massa saker frågar vad jag egentligen menar, och hur jag har kommit fram till slutsatserna.<br/>
+<br/>
+<br/>
+Nu hoppas jag att folk har lite mer
