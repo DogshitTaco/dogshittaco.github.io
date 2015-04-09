@@ -17,6 +17,11 @@ För det andra är jag [logisk](http://sv.wiktionary.org/wiki/logisk).<br/>
 Detta brukar hänga ihop med pragmatismen. Har man inte det ena, så har man förmodligen inte det andra heller.<br/>
 [Logik är en av hörnstenarna i min person](http://sv.wikipedia.org/wiki/Logik).<br/>
 Man brukar säga att personer som jag är [rationella](http://g3.spraakdata.gu.se/saob/show.phtml?filenr=1/206/205.html).<br/>
+<br/>
+För mig är matematik naturens språk.<br />
+Allt som existerar kan beskrivas genom matematik<br/>
+E = mc² är ett relativt bra exempel på detta.<br/>
+Resultatet av en matetatisk formel blir den samma vem som än löser den (förutsatt att man räknar rätt).<br/>
 <br />
 <br/>
 Motsatsen till rationell är bland annat [emotionell, känslomässig, irrationell, förnuftsvidrig, oförnuftig, opraktisk, ineffektiv](http://antonym.se/rationell).<br/>
@@ -25,6 +30,10 @@ Motsats till pragmatisk är bland annat [idealistisk, teoretisk, romantisk, orea
 <br/>
 Logikens motsats är [ologiskhet, inkonsekvens](http://antonym.se/logik).<br/>
 <br/>
+<br/>
+Ett emotionellt argument behöver inte alls väcka samma känslor eller slutsatser hos två olika personer. Det kan till och med vara så att det emotionella argumentet väcker olika känslor hos samma person över tid.<br/>
+Tror ni att det är logiska eller emotionella argument som styr extremister?<br/>
+Är det logiskt att mörda någon för att dom gör karikatyrer på en sedan länge död person?<br/>
 <br/>
 <br/>
 Finns det fortfarande någon som inte förstår skillnaden mellan att ha empati och att godta emotionella argument?<br />
@@ -85,4 +94,4 @@ Jag är förmodligen mer medveten om mina fel och brister än dom flesta är om 
 Men jag är också fullt medveten om mina styrkor.<br/>
 Och jag skäms inte för att lyfta fram varesig mina styrkor eller mina svagheter.<br/>
 Men att lyfta fram sina styrkor ses som osvenskt, buffligt och narcissistiskt. Då bryter man ju mot [Jantelagen](http://sv.wikipedia.org/wiki/Jantelagen).<br/>
-Tycker man att det är en dålig sak, så är man förmodligen emot det multikulturella. Och ska kanske rösta på SD. :P 
+Tycker man att det är en dålig sak, så är man förmodligen emot det multikulturella (Jantelagen är hyfsat okänd utanför norden). Och då vet jag ett parti man kan rösta på i nästa val. :P 
