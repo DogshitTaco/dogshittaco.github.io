@@ -85,7 +85,7 @@ Defensiv, petig och känslokall<br/>
 <br/>
 Läs gärna lite om personlighetstester som [DISC](http://www.ensize.se/produkter/pussel-disc)<br/>
 <br/>
-Med detta sagt, så förstår jag att en del gula eller gröna personer uppfattar mig som narcissistisk och empatilös. <br/>
+Jag förstår att en del gula eller gröna personer uppfattar mig som narcissistisk och empatilös. <br/>
 Det ligger i deras personligheter att se min personlighet så. Speciellt eftersom jag har väldigt mycket av både blått och rött.<br/>
 Jag har dessutom en benägenhet att vara alltför rak när jag kommunicerar (funkar bra med andra röda eller blå personer). <br/>
 När jag delger mina analyser eller åsikter om olika ämnen har jag ibland för bråttom.<br/>
@@ -106,4 +106,7 @@ Men jag är också fullt medveten om mina styrkor.<br/>
 Och jag skäms inte för att lyfta fram varesig mina styrkor eller mina svagheter.<br/>
 Men att lyfta fram sina styrkor ses som osvenskt, buffligt och narcissistiskt. Då bryter man ju mot [Jantelagen](http://sv.wikipedia.org/wiki/Jantelagen).<br/>
 Tycker man att det är en dålig sak, så är man förmodligen emot det multikulturella. (Jantelagen är hyfsat okänd utanför norden, och jag _är_ ju faktiskt en produkt av det multikulturella samhället.)<br/> 
-Och då vet jag ett parti man kan rösta på i nästa val. :P 
+Och då vet jag ett parti man kan rösta på i nästa val. :P <br />
+<br />
+LLAP
+
