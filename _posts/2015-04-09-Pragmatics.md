@@ -30,12 +30,14 @@ Logikens motsats är [ologiskhet, inkonsekvens](http://antonym.se/logik).<br/>
 Finns det fortfarande någon som inte förstår skillnaden mellan att ha empati och att godta emotionella argument?<br />
 Låt mig då ge två emotionella argument. Ett av argumenten kommer du att tycka är sant. Det andra kommer du att tycka är falskt. <br/>
 Jag godkänner _inget_ av dom, för jag godtar enbart logiska och rationella argument.<br/>
+<ul>
 <li>
 Om du röstar på SD är du en rasist.<br/>
 </li>
 <li>
 Är man inte vit, så är man mindre värd.<br/>
 </li>
+</ul>
 <br/>
 <br/>
 Det första påståendet är helt enkelt inte sant. Man _kan_ vara en rasist och lägga en röst på SD, men man blir inte automatiskt förvandlad till en rasist.<br/>
