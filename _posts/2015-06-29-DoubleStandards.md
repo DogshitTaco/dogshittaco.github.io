@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Double Standards 
+title: Dubbelmoral 
 published: true
 ---
 
