@@ -27,8 +27,5 @@ Eller hade ni frivilligt satt er i en sådan här bil som ni vet helt saknar bro
 Jag gjorde det första, och en av mina kollegor blev jättearg.</br>
 Vad hade ni tyckt om den kollegan?</br>
 </br>
-Personligen justerade jag min uppfattning om kollegans IQ.</br>
-Och inte åt det positiva hållet...</br>
-</br>
-Och ja, både kollegan och min chef kan läsa detta. :)
+
 
