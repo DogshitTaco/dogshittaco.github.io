@@ -21,9 +21,14 @@ Du får höra att bromspedalen är en _"extra feature"_ som man inte tänker ins
 Trots dina protester att man inte kan se bromsarna som en _"extra feature"_, utan att dessa är totalt nödvändiga för att inte smälla rakt in i en bergsvägg i 300km/h eller åka rakt ut för ett stup, så får du kalla handen.</br>
 </br>
 Hade ni då gjort som jag och rakt ut sagt att om man inte installerar bromspedalen, så tänker inte jag köra bilen.</br>
-Och vad hade ni tyckt om den kollega som blir jättearg när jag säger detta?</br>
-</br>
 Eller hade ni frivilligt satt er i en sådan här bil som ni vet helt saknar bromsar och gett er ut på vägen i översta bilden?</br>
 ![NyttVerktyg](http://dogshittaco.github.io/images/newTool.jpg)</br>
 </br>
-<!--![_config.yml]({{ site.baseurl }}/images/config.png)-->
+Jag gjorde det första, och en av mina kollegor blev jättearg.</br>
+Vad hade ni tyckt om den kollegan?</br>
+</br>
+Personligen justerade jag min uppfattning om kollegans IQ.</br>
+Och inte åt det positiva hållet...</br>
+</br>
+Och ja, både kollegan och min chef kan läsa detta. :)
+
